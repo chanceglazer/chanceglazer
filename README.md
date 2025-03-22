@@ -21,6 +21,8 @@
 
 <i>➸        sometimes i can be freaky but as a joke, i rarely do so around strangers </i>
 
+<i>➸        i'ma girl!!! preferably 13+ int, it's a bit awkward talking to ppl younger than me </i>
+
 . ◇──◆──◇──◆ .
 . ◆──◇──◆──◇ .
 . ◇──◆──◇──◆ .
