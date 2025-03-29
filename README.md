@@ -1,39 +1,43 @@
-╭─── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ─────────────────────╮
+<div align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=22&pause=1000&color=CACACA&center=true&vCenter=true&width=500&lines=hope+you+like+my+profile+lolz;check+links+^^"/>
+</div>
+<br>
 
-<i><u><center>➸         "where is my friend smiley?" </center></u></i>
+<!-- image & border -->
 
-<img src="https://pbs.twimg.com/media/GlQ5YzTWMAA7Fno?format=jpg&name=4096x4096" height="225" width="400" alt="" />
-<i><u>➸        art by PPINUT_BUTTER on twitter / x </u></i>
+<div align="center">
+  <i><h6> ` ┆ "i wanna roll with him, a hard pair we will be." ┆ ` </h6></i>
+</div>
+<br>
+<p align="center"> <img src="https://pbs.twimg.com/media/GmZDzWKaQAA1xnt?format=jpg&name=large" width="400"></p>
+<br>
+<div align="center">
+  <i><h6> ` ┆ by _ki33xc on twitter ┆ ` </h6></i>
+</div>
+<br>
+<p align="center"><b> └──────────────── ⋆⋅☆⋅⋆ ────────────────┘</b></p>
+<br>
+<br>
 
-╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──────────────────────╯
+<!-- introduction -->
 
-. ◇──◆──◇──◆ .
-. ◆──◇──◆──◇ .
-. ◇──◆──◇──◆ .
+<p align="center"><i> hello! i'm a girl, she/her pronouns, and uh i usually go on ponytown to make skins, friends, and cuddle people or crown them. uaghh, and as you can tell i like doublefedora (but i'm not weird abt it compared to... some... fans.), and other ships in 4saken (like azuretime, !! i like drawing and uh i could be annoying sometimes so lmk if i overdo something or go past boundaries or something. i'm pretty cocky or freaky sometimes, but without my friends i'm more reserved nd nicer lol. also, i'm into things like wings of fire, bojack horseman, tuca & bertie,  obviously forsaken, uh, as well as some args, and other rblx games.</i></p>
+<br>
+<p align="center"><i> further more on that, i just am a bit drier but i do overshare and yap. but if i'm alone on ponytown, feel free to talk to me or cuddle with me!! and if i'm not, you can still tag along, since from experience me and my bestfriends are fine with cuddling!</i></p>
+<br>
 
-<i>➸        tc (touch comfort), cuddling encouraged! </i>
+<!-- final messages -->
 
-<i>➸        i love making new friends, forsaken fandom int please!! </i>
+<div align="center">
+  <i><h6> most of my informtion is in my links, i'd prefer not to re-tell things again so i just kept it simple. </h6></i>
+</div>
+<div align="center">
+  <i><h6> i <3 K and V </h6></i>
+</div>
 
-<i>➸        further more on that, ships are alright with me </i>
+<!-- below is text thingy -->
 
-<i>➸        err i overthink & have anxiety, but sometimes i do talk to someone first </i>
-
-<i>➸        sometimes i can be freaky but as a joke, i rarely do so around strangers </i>
-
-<i>➸        im a girl!!! preferably 13+ int, it's a bit awkward talking to ppl younger than me </i>
-
-. ◇──◆──◇──◆ .
-. ◆──◇──◆──◇ .
-. ◇──◆──◇──◆ .
-
-╭─── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ─────────────────────╮
-
-<i><u><center>➸         "are we still friends?" </center></u></i>
-
-<img src="https://pbs.twimg.com/media/Gk7USuObQA0hoIO?format=jpg&name=medium" height="432" width="432" alt="" />
-<i><u>➸        art by Deru_Haruto on twitter / x </u></i>
-
-╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──────────────────────╯
-
-<i>       (i love using html muahahaha) </i>
+<div align="center">
+  
+![status](https://img.shields.io/badge/loves-chance-%23CACACA?style=flat-square)
+</div>
