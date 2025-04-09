@@ -6,13 +6,13 @@
 <!-- this stupid shit -->
 
 <div align="center">
-  <i><h6> ` ┊ stupid stuff ┊ ` </h6></i>
+  <i><h6> ` ┊ retro studio image ┊ ` </h6></i>
 </div>
 
-<p align="center"> <img src="https://cdn.discordapp.com/attachments/1322435427134607360/1358562111487479858/image.png?ex=67f44b10&is=67f2f990&hm=451a0392bbf9133c04e74b2813bb87ad9adfcffeb958bae54c640e34de3e46cf&"></p>  
+<p align="center"> <img src="https://files.catbox.moe/8vu48n.png"></p>  
 
 <div align="center">
-  <i><h6> ` ┊ something that happened while i was on retrostudio ┊ ` </h6></i>
+  <i><h6> ` ┊ there was 3 jx1s,,, ┊ ` </h6></i>
 </div>
 <br>
 <br>
