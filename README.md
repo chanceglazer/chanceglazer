@@ -9,10 +9,10 @@
   <i><h6> ` ┊ retro studio image ┊ ` </h6></i>
 </div>
 
-<p align="center"> <img src="https://files.catbox.moe/8vu48n.png"></p>  
+<p align="center"> <img src="https://files.catbox.moe/t9dyy8.png"></p>  
 
 <div align="center">
-  <i><h6> ` ┊ there was 3 jx1s,,, ┊ ` </h6></i>
+  <i><h6> ` ┊ there was 3 jx1s,,, updated img because i forgot to cross out their names due to privacy reasons ┊ ` </h6></i>
 </div>
 <br>
 <br>
