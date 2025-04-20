@@ -33,7 +33,7 @@
 <br>
 
 <div align=center>
-<i> call me jas, minor, she/her prns, tc, c+h ^^!
+<i> call me jas, minor, she/her prns, tc, c+h, w2i (mainly offtab) ^^!
   
 let me know if im doing something youre uncomf with
 <br>
