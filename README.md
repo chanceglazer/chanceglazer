@@ -41,6 +41,11 @@ let me know if im doing something youre uncomf with
 i like drawing, rblx, rblx args and shows like tuca & bertie or bojack horseman
 <br>
 <i>if youre being rude to me or my friends get the hell out</i>
+<br>
+<br>
+<i> thanku to everyone who follows me, i love you all!! </i>
+<br>
+<i> i just mainly follow friends, or ppl who i think r cool ^^ </i>
 </div>
 
 <br>
