@@ -56,11 +56,11 @@ i like drawing, rblx, rblx args and shows like tuca & bertie or bojack horseman
 
 <div align=center>
   
-  <i><h6>``but i love you so`` </h6></i>
+  <i><h6>``where will you go?`` </h6></i>
   <br>
   <br>
   
-<i><h6>``please let me go.`` </h6></i>
+<i><h6>``its a secret! but you could say it's like paradise..`` </h6></i>
 
 
 </div>
