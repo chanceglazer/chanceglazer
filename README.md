@@ -47,6 +47,10 @@ i like drawing, rblx, rblx args and shows like tuca & bertie or bojack horseman
 <br>
 <i> i just mainly follow friends, or ppl who i think r cool ^^ </i>
 </div>
+<br>
+<br>
+<div align=center>
+<i>read rentry, sign ata, thank you!</i>
 
 <br>
 <br>
