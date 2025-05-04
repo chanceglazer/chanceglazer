@@ -68,3 +68,13 @@ i like drawing, rblx, rblx args and shows like tuca & bertie or bojack horseman
 
 
 </div>
+
+<br>
+<br>
+<div align=center>
+<img src="https://files.catbox.moe/km86n2.png" />
+
+  <i><h6>``hi im the cult leader of this group (im hypersexuality elote)`` </h6></i>
+
+</div>
+
