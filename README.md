@@ -72,9 +72,9 @@ i like drawing, rblx, rblx args and shows like tuca & bertie or bojack horseman
 <br>
 <br>
 <div align=center>
-<img src="https://files.catbox.moe/km86n2.png" />
+<img src="https://files.catbox.moe/uch8wn.png" />
 
-  <i><h6>``hi im the cult leader of this group (im hypersexuality elote)`` </h6></i>
+  <i><h6>``hi im the creator & cult leader of this group (im hypersexuality elote)`` </h6></i>
 
 </div>
 
