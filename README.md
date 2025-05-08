@@ -73,10 +73,11 @@ i like drawing, rblx, rblx args and shows like tuca & bertie or bojack horseman
 <br>
 <div align=center>
   
-![GoZwmR2XIAA0Dfg](https://github.com/user-attachments/assets/774b110e-03f9-46ee-90b0-e76a2c6042f9)
+![0](https://github.com/user-attachments/assets/44274031-a65f-43c1-a58b-4539ea93d1eb)
 
 
-  <i><h6>``this is gonna be the spot where i post the shittiest images known to man i find`` </h6></i>
+
+  <i><h6>``art by me :p !! i did this at school on my laptop after finishing my work in my last class`` </h6></i>
 
 </div>
 
