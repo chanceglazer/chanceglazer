@@ -72,9 +72,11 @@ i like drawing, rblx, rblx args and shows like tuca & bertie or bojack horseman
 <br>
 <br>
 <div align=center>
-<img src="https://files.catbox.moe/uch8wn.png" />
+  
+![GoZwmR2XIAA0Dfg](https://github.com/user-attachments/assets/774b110e-03f9-46ee-90b0-e76a2c6042f9)
 
-  <i><h6>``hi im the creator & cult leader of this group (im hypersexuality elote)`` </h6></i>
+
+  <i><h6>``this is gonna be the spot where i post the shittiest images known to man i find`` </h6></i>
 
 </div>
 
