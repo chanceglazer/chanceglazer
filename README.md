@@ -72,12 +72,10 @@ i like drawing, rblx, rblx args and shows like tuca & bertie or bojack horseman
 <br>
 <br>
 <div align=center>
-  
-![0](https://github.com/user-attachments/assets/44274031-a65f-43c1-a58b-4539ea93d1eb)
 
 
 
-  <i><h6>``art by me :p !! i did this at school on my laptop after finishing my work in my last class`` </h6></i>
+  <i><h6>``YES i know the eyepatch is on the wrong eye, i based it off the pirate render, not actual one from the pirate movie lol, i wouldve down the other eye otherwise`` </h6></i>
 
 </div>
 
