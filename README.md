@@ -75,7 +75,11 @@ i like drawing, rblx, rblx args and shows like tuca & bertie or bojack horseman
 
 
 
-  <i><h6>``YES i know the eyepatch is on the wrong eye, i based it off the pirate render, not actual one from the pirate movie lol, i wouldve down the other eye otherwise`` </h6></i>
+  <i><h6>``note for u seildirectory nerds: YES i know the eyepatch on my pirate sean is on the wrong eye, i based it off the pirate render, not actual one from the pirate movie lol, i wouldve down the other eye otherwise`` </h6></i>
+
+
+![Screenshot_3](https://github.com/user-attachments/assets/fae0068c-0b72-4688-a650-667783a0e66c)
+
 
 </div>
 
