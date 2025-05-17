@@ -79,7 +79,7 @@ i like drawing, rblx, rblx args and shows like tuca & bertie or bojack horseman
   <i><h6>``thnka u kay so fucking muchfor drawing sean in ts i loveu twin`` </h6></i>
 
 
-  <i><h6>``note for u seildirectory nerds: YES i know the eyepatch on my pirate sean is on the wrong eye, i based it off the pirate render, not actual one from the pirate movie lol, i wouldve down the other eye otherwise`` </h6></i>
+  <i><h6>``note for u seildirectory nerds: YES i know the eyepatch on my pirate sean is on the wrong eye, i based it off the pirate render, not actual one from the pirate movie (or just sean in general after he lost the opposite eye) lol, i wouldve down the other eye otherwise`` </h6></i>
 
 
 </div>
