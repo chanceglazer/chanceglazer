@@ -1,86 +1,39 @@
-<div align=center>
-<img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=22&pause=1000&color=CACACA&center=true&vCenter=true&width=600&lines=check+my+links+bc+yes!!%3F;kay%2C+velvet+and+my+pt+moots+ily" />
-</div>
+<div align="center">
 
-<!-- ^ stays up there ^ -->
-<br>
-
-<div align=center>
+  ★ ──────────────────────────────
   
-![fans](https://komarev.com/ghpvc/?username=chanceglazer&color=F9D627&style=plastic-square)
+  <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=22&pause=1000&color=F4C64F&center=true&vCenter=true&width=600&lines=sign+ata+^^;eye+for+an+eye." />
 
+  ![fans](https://komarev.com/ghpvc/?username=chanceglazer&color=F62664&style=plastic-square)  ![Label](https://img.shields.io/badge/note-arg%20lover%20for%20life-7E55CA)<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/15a35bd6-27ab-46cd-b8f1-cacb0a51d88c/damzl8o-8f370010-e022-4383-99d0-57816c49cf88.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzE1YTM1YmQ2LTI3YWItNDZjZC1iOGYxLWNhY2IwYTUxZDg4Y1wvZGFtemw4by04ZjM3MDAxMC1lMDIyLTQzODMtOTlkMC01NzgxNmM0OWNmODgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.1Snv4-Bvhi2S0R6fTK5XHUAI8HWOQC7pp9avcg3vN-E" />
 
-
+  ────────────────────────────── ★
 </div>
 
 <br>
+<br>
+<br>
 
-<div align=center>
+<div align="center">
   
-  <i><h6>``art by nerdyanuk on x`` </h6></i>
+<img src="https://files.catbox.moe/tj1jt4.jpg" />
+
+<br>
+<br>
+
+[rentry](https://rentry.co/piratesean) . [ata](https://chanceglazer.atabook.org/) . [straw](https://ozolog1fan.straw.page/)  .  [pronouns](https://en.pronouns.page/@__.jas)
+
+<h6>she/her&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;w2i&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;tc&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;minor</h6>
+<br>
+<h5> ocean breathes salty by modest mouse oohmgodd</h5>
+<h5> c+h friendly (to my bestfriends or moots btw, feel free to guys! idm ngl </h5>
+<h5> im literally ^^ my favorite emoticon is ^^ idk why i love it i always use it for stuff </h5>
+<h5> i love cappy0, brandon6875935, sean/beatzz, and gr0wing_f3rns (aside from args, chance ^^) </h5>
+<h5> uhh im an overthinker so i usually dont talk to people first unless im comfortable and feeling happy </h5>
+<br>
+<br>
+<br>
+<br>
+<br>
+<h6> @r0sh11_ on X (beatzz art) ★ shalmons on deviantart (pixel icon) ★ k, v, n, and m i love you </h6>
 
 </div>
-
-<div align=center>
-<img src="https://files.catbox.moe/yt3tgt.png" />
-
-  <i><h6>``ozo is that you? LOL it must be! hope you still get out there and pwn, so much fun`` </h6></i>
-
-</div>
-
-<br>
-<br>
-<br>
-
-<div align=center>
-<i> call me jas, minor, she/her prns, tc, c+h, w2i (mainly offtab) ^^!
-  
-let me know if im doing something youre uncomf with
-<br>
-<br>
-i like drawing, rblx, rblx args and shows like tuca & bertie or bojack horseman
-<br>
-<i>if youre being rude to me or my friends get the hell out</i>
-<br>
-<br>
-<i> thanku to everyone who follows me, i love you all!! </i>
-<br>
-<i> i just mainly follow friends, or ppl who i think r cool ^^ </i>
-</div>
-<br>
-<br>
-<div align=center>
-<i>read rentry, sign ata, thank you!</i>
-
-<br>
-<br>
-<br>
-<br>
-<br>
-
-<div align=center>
-  
-  <i><h6>``where will you go?`` </h6></i>
-  <br>
-  <br>
-  
-<i><h6>``its a secret! but you could say it's like paradise..`` </h6></i>
-
-
-</div>
-
-<br>
-<br>
-<div align=center>
-
-
-<img src="https://files.catbox.moe/axqpxd.png">
-
-  <i><h6>``thnka u kay so fucking muchfor drawing sean in ts i loveu twin`` </h6></i>
-
-
-  <i><h6>``note for u seildirectory nerds: YES i know the eyepatch on my pirate sean is on the wrong eye, i based it off the pirate render, not actual one from the pirate movie (or just sean in general after he lost the opposite eye) lol, i wouldve down the other eye otherwise`` </h6></i>
-
-
-</div>
-
