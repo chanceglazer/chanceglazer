@@ -20,15 +20,16 @@
 <br>
 <br>
 
-[rentry](https://rentry.co/piratesean) . [ata](https://chanceglazer.atabook.org/) . [straw](https://ozolog1fan.straw.page/)  .  [pronouns](https://en.pronouns.page/@__.jas)
+[rentry](https://rentry.co/piratesean) . [ata](https://chanceglazer.atabook.org/) . [straw](https://ozolog1fan.straw.page/)  .  [pronouns](https://en.pronouns.page/@__.jas) .  [horrors](https://hallofhorrors.straw.page/)
 
 <h6>she/her&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;w2i&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;tc&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;minor</h6>
 <br>
 <h5> ocean breathes salty by modest mouse oohmgodd</h5>
+<h5> check out my hall of horrors strawpage its so funny bro trust me </h5>
 <h5> c+h friendly (to my bestfriends or moots btw, feel free to guys! idm ngl </h5>
 <h5> im literally ^^ my favorite emoticon is ^^ idk why i love it i always use it for stuff </h5>
 <h5> i love cappy0, brandon6875935, sean/beatzz, and gr0wing_f3rns (aside from args, chance ^^) </h5>
-<h5> uhh im an overthinker so i usually dont talk to people first unless im comfortable and feeling happy </h5>
+<h5> hi YES i know my sean's eyepatch is on the wrong eye, uhh i based it off a render, not an actual </h5>
 <br>
 <br>
 <br>
