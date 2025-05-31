@@ -28,9 +28,7 @@
 <h5> check out my hall of horrors strawpage its so funny bro trust me </h5>
 <h5> c+h friendly (to my bestfriends or moots btw, feel free to guys! idm ngl </h5>
 <h5> im literally ^^ my favorite emoticon is ^^ idk why i love it i always use it for stuff </h5>
-<h5> i love cappy0, brandon6875935, sean/beatzz, and gr0wing_f3rns (aside from args, chance ^^) </h5>
-<h5> hi YES i know my sean's eyepatch is on the wrong eye, uhh i based it off a render, not an actual </h5>
-<br>
+<h5> i love cappy0, brandon6875935, sean/beatzz, and gr0wing_f3rns (aside from args, chance ^^) </h5><br>
 <br>
 <br>
 <br>
