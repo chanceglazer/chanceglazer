@@ -33,6 +33,6 @@
 <br>
 <br>
 <br>
-<h6> @r0sh11_ on X (beatzz art) ★ shalmons on deviantart (pixel icon) ★ k, v, n, and m i love you </h6>
+<h6> @r0sh11_ on X (beatzz art) ★ shalmons on deviantart (pixel icon) ★ k, v, and n i love you </h6>
 
 </div>
