@@ -31,6 +31,9 @@
 <h5> i love cappy0, brandon6875935, sean/beatzz, and FERN/SAM SO MCUHHH (aside from args, chance ^^) </h5><br>
 <br>
 <br>
+
+![Screenshot_37](https://github.com/user-attachments/assets/09c51e42-87ce-4c84-b78f-261ff87eb159)
+<h5> @IHASAFACE-LULZ did this i didnt paint my feet as ihasfacelulz im sane and not crazy at all compared to this fucker (coughcough) </h5>
 <br>
 <br>
 <h6> @r0sh11_ on X (beatzz art) ★ shalmons on deviantart (pixel icon) ★ k, v, and n i love you </h6>
