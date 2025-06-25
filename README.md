@@ -20,7 +20,7 @@
 <br>
 <br>
 
-[rentry](https://rentry.co/piratesean) . [ata](https://chanceglazer.atabook.org/) . [straw](https://ozolog1fan.straw.page/)  .  [pronouns](https://en.pronouns.page/@__.jas) .  [horrors](https://hallofhorrors.straw.page/)
+[rentry](https://rentry.co/headsh07) . [ata](https://chanceglazer.atabook.org/) . [straw](https://ozolog1fan.straw.page/)  .  [pronouns](https://en.pronouns.page/@__.jas) .  [horrors](https://hallofhorrors.straw.page/)
 
 <h6>she/her&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;w2i&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;tc&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;minor</h6>
 <br>
@@ -28,7 +28,6 @@
 <h5> check out my hall of horrors strawpage its so funny bro trust me </h5>
 <h5> c+h friendly (to my bestfriends or moots btw, feel free to guys! idm ngl </h5>
 <h5> im literally ^^ my favorite emoticon is ^^ idk why i love it i always use it for stuff </h5>
-<h5> i love cappy0, brandon6875935, sean/beatzz, and FERN/SAM SO MCUHHH (aside from args, chance ^^) </h5><br>
 <br>
 <br>
 
