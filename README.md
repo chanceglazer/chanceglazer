@@ -4,7 +4,7 @@
   
   <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=22&pause=1000&color=F4C64F&center=true&vCenter=true&width=600&lines=sign+ata+^^;eye+for+an+eye." />
 
-  ![fans](https://komarev.com/ghpvc/?username=chanceglazer&color=F62664&style=plastic-square)  ![Label](https://img.shields.io/badge/note-arg%20lover%20for%20life-7E55CA)<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/15a35bd6-27ab-46cd-b8f1-cacb0a51d88c/damzl8o-8f370010-e022-4383-99d0-57816c49cf88.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzE1YTM1YmQ2LTI3YWItNDZjZC1iOGYxLWNhY2IwYTUxZDg4Y1wvZGFtemw4by04ZjM3MDAxMC1lMDIyLTQzODMtOTlkMC01NzgxNmM0OWNmODgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.1Snv4-Bvhi2S0R6fTK5XHUAI8HWOQC7pp9avcg3vN-E" />
+  ![text](https://komarev.com/ghpvc/?username=chanceglazer&color=F62664&style=plastic-square)  ![Label](https://img.shields.io/badge/note-arg%20lover%20for%20life-7E55CA)<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/15a35bd6-27ab-46cd-b8f1-cacb0a51d88c/damzl8o-8f370010-e022-4383-99d0-57816c49cf88.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzE1YTM1YmQ2LTI3YWItNDZjZC1iOGYxLWNhY2IwYTUxZDg4Y1wvZGFtemw4by04ZjM3MDAxMC1lMDIyLTQzODMtOTlkMC01NzgxNmM0OWNmODgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.1Snv4-Bvhi2S0R6fTK5XHUAI8HWOQC7pp9avcg3vN-E" />
 
   ────────────────────────────── ★
 </div>
