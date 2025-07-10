@@ -20,7 +20,7 @@
 <br>
 <br>
 
-[rentry](https://rentry.co/headsh07) . [ata](https://samuelfrnwilliams.atabook.org/) . [straw](https://ozolog1fan.straw.page/)  .  [pronouns](https://en.pronouns.page/@__.jas) .  [horrors](https://hallofhorrors.straw.page/)
+[rentry](https://rentry.co/gr0wing_f3rnz) . [ata](https://samuelfrnwilliams.atabook.org/) . [straw](https://ozolog1fan.straw.page/)  .  [pronouns](https://en.pronouns.page/@__.jas) .  [horrors](https://hallofhorrors.straw.page/)
 
 <h6>she/her&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;w2i&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;tc&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;minor</h6>
 <br>
