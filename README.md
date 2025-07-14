@@ -24,10 +24,6 @@
 
 <h6>she/her&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;w2i&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;tc&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;minor</h6>
 <br>
-<h5> ocean breathes salty by modest mouse oohmgodd</h5>
-<h5> check out my hall of horrors strawpage its so funny bro trust me </h5>
-<h5> c+h friendly (to my bestfriends or moots btw, feel free to guys! idm ngl </h5>
-<h5> im literally ^^ my favorite emoticon is ^^ idk why i love it i always use it for stuff </h5>
 <br>
 <br>
 <br>
