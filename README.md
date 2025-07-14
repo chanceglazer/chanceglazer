@@ -33,4 +33,7 @@
 <br>
 <h6> @r0sh11_ on X (beatzz art) ★ shalmons on deviantart (pixel icon) ★ k, v, and n i love you </h6>
 
+<img width="539" height="183" alt="image (4)" src="https://github.com/user-attachments/assets/0aef1073-42b7-46dd-a495-58aa48841ef9" />
+
+
 </div>
