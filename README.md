@@ -1,5 +1,13 @@
 <div align="center">
 
+<b> hi pls dont heavily base or copy my skins thanks iim so fucking tired of thjat </b>
+
+<br>
+<br>
+<br>
+<br>
+<br>
+
 
 <img width="373" height="256" alt="IMG_2865" src="https://github.com/user-attachments/assets/c98b1629-c655-44b5-8a28-db37319ed86c" />
 
