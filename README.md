@@ -1,6 +1,6 @@
 <div align="center">
 
-<b> hi pls dont heavily base or copy my skins thanks iim so fucking tired of thjat </b>
+<b> hi pls dont heavily base off of or copy my skins thanks iim so fucking tired of thjat </b>
 
 <br>
 <br>
