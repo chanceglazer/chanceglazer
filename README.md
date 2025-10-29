@@ -1,6 +1,5 @@
 <div align="center">
 
-<b> hi pls dont heavily base off of or copy my skins thanks iim so fucking tired of thjat </b>
 
 <br>
 <br>
@@ -8,15 +7,15 @@
 <br>
 <br>
 
+<img width="292" height="326" alt="ishouldbehappy!" src="https://github.com/user-attachments/assets/463c3238-96e2-4a6e-a009-bad9a1d11d78" />
 
-<img width="200" height="200" alt="skeetrender" src="https://i.postimg.cc/8PVLvkgR/Skeet-Render.webp" />
+  <i> ♡. she/he, __minor__ .• </i>
+  <br>
+  [ata](https://samuelfrnwilliams.atabook.org/) ┊ [straw](https://samuelfrnnwilliams.straw.page/) ┊ [rentry](https://rentry.co/lovehum) 
+  
+  ![67](https://komarev.com/ghpvc/?username=chanceglazer&color=282B22&label=marked)  ![Label](https://img.shields.io/badge/note-samglazer-FFFFFF)
 
 
-
-  ![67](https://komarev.com/ghpvc/?username=chanceglazer&color=f5bfed&label=marked)  ![Label](https://img.shields.io/badge/note-samglazer-db85bf)
-
-
-〔 [ata](https://samuelfrnwilliams.atabook.org/) • [straw](https://samuelfrnnwilliams.straw.page/) • [rentry](https://rentry.co/lovehum) 〕
 
 
 </div>
