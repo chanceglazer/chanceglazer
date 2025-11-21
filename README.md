@@ -1,12 +1,12 @@
 <div align="center">
 
-<i> wip wait </i>
+<i> placeholder </i>
 
-<img width="292" height="326" alt="ishouldbehappy!" src="https://github.com/user-attachments/assets/463c3238-96e2-4a6e-a009-bad9a1d11d78" />
+<img width="256" height="343" alt="nil" src="https://i.postimg.cc/T19yMqrz/G5e8nd-EXw-AAnmq-C.png" />
 
   <i> ♡. she/he, __minor__ .• </i>
 
-  ![67](https://komarev.com/ghpvc/?username=chanceglazer&color=282B22&label=marked)  ![Label](https://img.shields.io/badge/note-samglazer-FFFFFF)
+  ![label](https://komarev.com/ghpvc/?username=chanceglazer&color=282B22&label=marked)  ![Label](https://img.shields.io/badge/note-samglazer-FFFFFF)
 
 
 
