@@ -1,14 +1,10 @@
 <div align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=22&pause=10000&color=8E3F2A&center=true&vCenter=true&width=600&lines=ocean+breathes+salty;wont+you+carry+it+in?" />
+</div>
+<div align="center">
+  
+<img width="500" height="500" alt="nil" src="https://i.postimg.cc/NfmdMFQg/spawnship.gif" />
 
-<i> placeholder </i>
-
-<img width="256" height="343" alt="nil" src="https://i.postimg.cc/T19yMqrz/G5e8nd-EXw-AAnmq-C.png" />
-
-  <i> ♡. she/he, __minor__ .• </i>
-
-  ![label](https://komarev.com/ghpvc/?username=chanceglazer&color=000000&label=marked)  ![Label](https://img.shields.io/badge/note-samglazer-FFFFFF)
-
-
-
+ ![label](https://komarev.com/ghpvc/?username=chanceglazer&color=F3A963&label=marked)  ![Label](https://img.shields.io/badge/note-samglazer-6B271C)
 
 </div>
